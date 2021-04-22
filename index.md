@@ -4,6 +4,12 @@
 
 Join us at [twitter.com/BeMathAware](https://twitter.com/bemathaware) to share your concerns about the most innumerate man in darts, aka the Portuguese Man of Scores, aka The Special One, aka Joey Deez, aka Joey Soda, José de Sousa.
 
+---
+
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">Jose will hit his 100th maximum of the season when on 182 to leave 2 after nine darts against the throw in the decider of the final against Jonny Clayton. Clayton takes out 25 in two darts to win the title with an 11 darter.</p>&mdash; Weekly Dartscast (@WeeklyDartscast) <a href="https://twitter.com/WeeklyDartscast/status/1385339896060055553?ref_src=twsrc%5Etfw">April 22, 2021</a></blockquote>
+
+---
+
 <blockquote class="twitter-tweet"><p lang="en" dir="ltr">Just too good not to GIF...<br><br>Caption competition PLEASE 😂 <a href="https://t.co/seW1ce0sIz">pic.twitter.com/seW1ce0sIz</a></p>&mdash; PDC Darts (@OfficialPDC) <a href="https://twitter.com/OfficialPDC/status/1379901652690472961?ref_src=twsrc%5Etfw">April 7, 2021</a></blockquote>
 
 ---
